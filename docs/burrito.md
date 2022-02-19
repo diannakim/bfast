@@ -41,8 +41,8 @@ Source:
 
     - **NOTE:** You will find the butter on the top shelf in the refrigerator.
 
-![1,129 Butter Melting In Pan Stock Photos, Pictures &amp; Royalty-Free
-Images - iStock](images/media/image10.jpeg)
+    ![1,129 Butter Melting In Pan Stock Photos, Pictures &amp; Royalty-Free
+    Images - iStock](images/media/image10.jpeg)
 
 *Figure 10: Melting the butter onto the pan.*
 
@@ -64,8 +64,8 @@ Images - iStock](images/media/image10.jpeg)
 
     - **NOTE:** You will find knives in the knife block next to the microwave.
 
-![How To Make Bacon Crumbles - The Cookie
-Rookie](images/media/image11.jpeg)
+    ![How To Make Bacon Crumbles - The Cookie
+    Rookie](images/media/image11.jpeg)
 
 *Figure 11: The crumbled bacon resting on a paper towel.*
 
@@ -81,8 +81,8 @@ Rookie](images/media/image11.jpeg)
 
     - **NOTE:** The fillings may come out of the burrito, so be careful with rolling!
 
-![How to Fold a Wrap, Step by Step \|
-Epicurious](images/media/image12.jpeg)
+    ![How to Fold a Wrap, Step by Step \|
+    Epicurious](images/media/image12.jpeg)
 
 *Figure 12: Rolling the tortilla into a small burrito.*
 

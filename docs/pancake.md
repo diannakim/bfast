@@ -37,8 +37,8 @@ Source: <https://www.noracooks.com/vegan-pancakes/>
 
     - **NOTE:** You will find large bowls in the cabinets below the dishwasher.
 
-![Chocolate-Filled Hamantaschen - Once Upon a
-Chef](images/media/image1.jpeg)
+    ![Chocolate-Filled Hamantaschen - Once Upon a
+    Chef](images/media/image1.jpeg)
 
 *Figure 1: Whisking together the dry ingredients -- flour, baking powder, salt, and sugar.*
 
@@ -50,8 +50,8 @@ Chef](images/media/image1.jpeg)
 
     - **WARNING:** Do not overmix the batter. Overmixing will lead to unfluffy pancakes!
 
-![Best Easiest Way to Clean a Whisk \|
-Kitchn](images/media/image2.jpeg)
+    ![Best Easiest Way to Clean a Whisk \|
+    Kitchn](images/media/image2.jpeg)
 
 *Figure 2: Stirring the batter of wet and dry ingredients.*
 
@@ -67,8 +67,8 @@ Kitchn](images/media/image2.jpeg)
 
 9.  **Flip** the pancake when you see bubbles forming on the surface! Continue to cook for about 1-2 minutes (Refer to Figure 3).
 
-![Buttermilk Pancakes - Simple Recipe Using Liquid or Dry
-Buttermilk](images/media/image3.jpeg)
+    ![Buttermilk Pancakes - Simple Recipe Using Liquid or Dry
+    Buttermilk](images/media/image3.jpeg)
 
 *Figure 3: Flipping pancakes when bubbles start forming on the surface.*
 
