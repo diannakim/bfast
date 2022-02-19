@@ -37,14 +37,14 @@ Source:
 
     - **NOTE:** You will find pans in the oven.
 
-2.  **Melt** the butter completely onto the pan (Refer to Figure 10).
+2.  **Melt** the butter completely onto the pan (Refer to Figure 1).
 
     - **NOTE:** You will find the butter on the top shelf in the refrigerator.
 
     ![1,129 Butter Melting In Pan Stock Photos, Pictures &amp; Royalty-Free
     Images - iStock](images/media/image10.jpeg)
 
-    *Figure 10: Melting the butter onto the pan.*
+    *Figure 1: Melting the butter onto the pan.*
 
 3.  **Add** the four eggs onto the pan and mix with a spatula until scrambled.
 
@@ -60,14 +60,14 @@ Source:
 
 12. **Remove** the bacon from the pan and **place it** on a paper towel.
 
-13. **Crumble** the slices of bacon either using your fingers or a knife and set it aside (Refer to Figure 11).
+13. **Crumble** the slices of bacon either using your fingers or a knife and set it aside (Refer to Figure 2).
 
     - **NOTE:** You will find knives in the knife block next to the microwave.
 
     ![How To Make Bacon Crumbles - The Cookie
     Rookie](images/media/image11.jpeg)
 
-    *Figure 11: The crumbled bacon resting on a paper towel.*
+    *Figure 2: The crumbled bacon resting on a paper towel.*
 
 14. **Place** the two tortillas on a plate.
 
@@ -77,14 +77,14 @@ Source:
 
 17. **Sprinkle** as much shredded cheddar cheese as you would like onto each tortilla.
 
-18. **Roll** each tortilla up into a small burrito (Refer to Figure 12).
+18. **Roll** each tortilla up into a small burrito (Refer to Figure 3).
 
     - **NOTE:** The fillings may come out of the burrito, so be careful with rolling!
 
     ![How to Fold a Wrap, Step by Step \|
     Epicurious](images/media/image12.jpeg)
 
-    *Figure 12: Rolling the tortilla into a small burrito.*
+    *Figure 3: Rolling the tortilla into a small burrito.*
 
 19. **Eat and enjoy!**
 

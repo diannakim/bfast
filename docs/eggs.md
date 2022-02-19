@@ -34,12 +34,12 @@ Source: <https://www.thespruceeats.com/scrambled-eggs-with-bacon-482587>
 
     - **NOTE:** You will find pans in the oven.
 
-2.  **Cook** the eight slices of bacon until crisp (Refer to Figure 7).
+2.  **Cook** the eight slices of bacon until crisp (Refer to Figure 1).
 
     ![The Best Method for Making Bacon \|
     Kitchn](images/media/image7.jpeg)
 
-    *Figure 7: Cooking the slices of bacon on the pan until crisp.*
+    *Figure 1: Cooking the slices of bacon on the pan until crisp.*
 
 3.  **Remove** the bacon from the pan and **place it** on a paper towel.
 
@@ -47,14 +47,14 @@ Source: <https://www.thespruceeats.com/scrambled-eggs-with-bacon-482587>
 
     - **NOTE:** You will find knives in the knife block next to the microwave.
 
-5.  **Whisk** the eight eggs, salt, and pepper in a large bowl (Refer to Figure 8).
+5.  **Whisk** the eight eggs, salt, and pepper in a large bowl (Refer to Figure 2).
 
     - **NOTE:** You will find bowls in the cabinet below the dishwasher.
 
     ![13 Scrambled Egg Mistakes &amp; How To Fix Them --- Eat This Not
     That](images/media/image8.jpeg)
 
-    *Figure 8: Whisking together the eggs, salt, and pepper in a large bowl.*
+    *Figure 1: Whisking together the eggs, salt, and pepper in a large bowl.*
 
 6.  **Melt** butter onto the same large pan that was used for the bacon over medium heat.
 
@@ -62,14 +62,14 @@ Source: <https://www.thespruceeats.com/scrambled-eggs-with-bacon-482587>
 
 7.  **Add** the egg mixture after the butter has been melted.
 
-8.  **Stir** the eggs over medium heat with a spatula (Refer to Figure 9).
+8.  **Stir** the eggs over medium heat with a spatula (Refer to Figure 3).
 
     - **NOTE:** You will find spatulas in the drawer below the microwave.
 
     ![A Recipe for Perfectly Fluffy Scrambled
     Eggs](images/media/image9.jpeg)
 
-    *Figure 9: Stirring the eggs with a spatula.*
+    *Figure 3: Stirring the eggs with a spatula.*
 
 9.  **Sprinkle** in the parmesan cheese and the crumbled bacon. Continue cooking for two minutes.
 
