@@ -33,7 +33,7 @@ Source: <https://minimalistbaker.com/my-go-to-avocado-toast/>
     ![Instructions for &quot;dummies&quot;: how to use a toaster, care rules
     \|](images/media/image4.jpeg)
 
-*Figure 4: Placing the bread into the toaster and pressing the button down to begin toasting.*
+    *Figure 4: Placing the bread into the toaster and pressing the button down to begin toasting.*
 
 2.  **Remove** the two slices of bread from the toaster after they are finished toasting. **Place** the slices of bread on a plate and set it aside.
     - **NOTE:** You will find plates and bowls in the cabinet above the dishwasher.
@@ -51,7 +51,7 @@ Source: <https://minimalistbaker.com/my-go-to-avocado-toast/>
     ![The Best Avocado Toast - Loving It
     Vegan](images/media/image5.jpeg)
 
-*Figure 5: Smashing the avocado with a fork to create a mash.*
+    *Figure 5: Smashing the avocado with a fork to create a mash.*
 
 6.  **Spread** the avocado mash onto the two slices of bread using a knife.
 
@@ -60,7 +60,7 @@ Source: <https://minimalistbaker.com/my-go-to-avocado-toast/>
     ![Sprinkling red pepper flake onto gluten-free avocado
     toast](images/media/image6.jpeg)
 
-*Figure 6: Sprinkling vegan parmesan cheese and red pepper flakes onto the avocado toasts!*
+    *Figure 6: Sprinkling vegan parmesan cheese and red pepper flakes onto the avocado toasts!*
 
 8.  **Eat and enjoy!**
 

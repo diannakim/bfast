@@ -40,7 +40,7 @@ Source: <https://www.noracooks.com/vegan-pancakes/>
     ![Chocolate-Filled Hamantaschen - Once Upon a
     Chef](images/media/image1.jpeg)
 
-*Figure 1: Whisking together the dry ingredients -- flour, baking powder, salt, and sugar.*
+    *Figure 1: Whisking together the dry ingredients -- flour, baking powder, salt, and sugar.*
 
 3.  **Measure** the wet ingredients -- milk and water.
 
@@ -53,7 +53,7 @@ Source: <https://www.noracooks.com/vegan-pancakes/>
     ![Best Easiest Way to Clean a Whisk \|
     Kitchn](images/media/image2.jpeg)
 
-*Figure 2: Stirring the batter of wet and dry ingredients.*
+    *Figure 2: Stirring the batter of wet and dry ingredients.*
 
 6.  **Heat** a medium-sized pan over medium heat on the stove.
 
@@ -70,7 +70,7 @@ Source: <https://www.noracooks.com/vegan-pancakes/>
     ![Buttermilk Pancakes - Simple Recipe Using Liquid or Dry
     Buttermilk](images/media/image3.jpeg)
 
-*Figure 3: Flipping pancakes when bubbles start forming on the surface.*
+    *Figure 3: Flipping pancakes when bubbles start forming on the surface.*
 
 10. **Repeat** until you have no more pancake batter.
 

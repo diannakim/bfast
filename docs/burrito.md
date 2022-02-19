@@ -44,7 +44,7 @@ Source:
     ![1,129 Butter Melting In Pan Stock Photos, Pictures &amp; Royalty-Free
     Images - iStock](images/media/image10.jpeg)
 
-*Figure 10: Melting the butter onto the pan.*
+    *Figure 10: Melting the butter onto the pan.*
 
 3.  **Add** the four eggs onto the pan and mix with a spatula until scrambled.
 
@@ -67,7 +67,7 @@ Source:
     ![How To Make Bacon Crumbles - The Cookie
     Rookie](images/media/image11.jpeg)
 
-*Figure 11: The crumbled bacon resting on a paper towel.*
+    *Figure 11: The crumbled bacon resting on a paper towel.*
 
 14. **Place** the two tortillas on a plate.
 
@@ -84,7 +84,7 @@ Source:
     ![How to Fold a Wrap, Step by Step \|
     Epicurious](images/media/image12.jpeg)
 
-*Figure 12: Rolling the tortilla into a small burrito.*
+    *Figure 12: Rolling the tortilla into a small burrito.*
 
 19. **Eat and enjoy!**
 
