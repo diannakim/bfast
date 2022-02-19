@@ -41,6 +41,7 @@ Source: <https://www.thespruceeats.com/scrambled-eggs-with-bacon-482587>
 
     *Figure 7: Cooking the slices of bacon on the pan until crisp.*
 
+{:start="3"}
 3.  **Remove** the bacon from the pan and **place it** on a paper towel.
 
 4.  **Crumble** the slices of bacon either using your fingers or a knife and set it aside.
