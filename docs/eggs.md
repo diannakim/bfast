@@ -36,10 +36,10 @@ Source: <https://www.thespruceeats.com/scrambled-eggs-with-bacon-482587>
 
 2.  **Cook** the eight slices of bacon until crisp (Refer to Figure 7).
 
-![The Best Method for Making Bacon \|
-Kitchn](images/media/image7.jpeg)
+    ![The Best Method for Making Bacon \|
+    Kitchn](images/media/image7.jpeg)
 
-*Figure 7: Cooking the slices of bacon on the pan until crisp.*
+    *Figure 7: Cooking the slices of bacon on the pan until crisp.*
 
 3.  **Remove** the bacon from the pan and **place it** on a paper towel.
 
@@ -51,10 +51,10 @@ Kitchn](images/media/image7.jpeg)
 
     - **NOTE:** You will find bowls in the cabinet below the dishwasher.
 
-![13 Scrambled Egg Mistakes &amp; How To Fix Them --- Eat This Not
-That](images/media/image8.jpeg)
+    ![13 Scrambled Egg Mistakes &amp; How To Fix Them --- Eat This Not
+    That](images/media/image8.jpeg)
 
-*Figure 8: Whisking together the eggs, salt, and pepper in a large bowl.*
+    *Figure 8: Whisking together the eggs, salt, and pepper in a large bowl.*
 
 6.  **Melt** butter onto the same large pan that was used for the bacon over medium heat.
 
@@ -66,10 +66,10 @@ That](images/media/image8.jpeg)
 
     - **NOTE:** You will find spatulas in the drawer below the microwave.
 
-![A Recipe for Perfectly Fluffy Scrambled
-Eggs](images/media/image9.jpeg)
+    ![A Recipe for Perfectly Fluffy Scrambled
+    Eggs](images/media/image9.jpeg)
 
-*Figure 9: Stirring the eggs with a spatula.*
+    *Figure 9: Stirring the eggs with a spatula.*
 
 9.  **Sprinkle** in the parmesan cheese and the crumbled bacon. Continue cooking for two minutes.
 
