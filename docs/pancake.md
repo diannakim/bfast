@@ -31,11 +31,11 @@ Source: <https://www.noracooks.com/vegan-pancakes/>
 
 1.  **Measure** each of the dry ingredients -- flour, baking powder, salt, and sugar.
 
-    - **NOTE:** You will find measuring cups, whisks, and spoons in the cabinet below the microwave.
+    > **NOTE:** You will find measuring cups, whisks, and spoons in the cabinet below the microwave.
 
 2.  **Whisk** together the measured dry ingredients -- flour, baking powder, salt, and sugar \-- in a large bowl (Refer to Figure I).
 
-    - **NOTE:** You will find large bowls in the cabinets below the dishwasher.
+    > **NOTE:** You will find large bowls in the cabinets below the dishwasher.
 
     ![Chocolate-Filled Hamantaschen - Once Upon a
     Chef](images/media/image1.jpeg)
@@ -48,7 +48,7 @@ Source: <https://www.noracooks.com/vegan-pancakes/>
 
 5.  **Stir** the batter with a large spoon until it is well combined (Refer to Figure 2).
 
-    - **WARNING:** Do not overmix the batter. Overmixing will lead to unfluffy pancakes!
+    > **WARNING:** Do not overmix the batter. Overmixing will lead to unfluffy pancakes!
 
     ![Best Easiest Way to Clean a Whisk \|
     Kitchn](images/media/image2.jpeg)
@@ -57,11 +57,11 @@ Source: <https://www.noracooks.com/vegan-pancakes/>
 
 6.  **Heat** a medium-sized pan over medium heat on the stove.
 
-    - **NOTE:** You will find pans in the oven.
+    > **NOTE:** You will find pans in the oven.
 
 7.  **Oil** the pan with some coconut oil.
 
-    - **NOTE:** You will find oils in the cabinet next to the oven.
+    > **NOTE:** You will find oils in the cabinet next to the oven.
 
 8.  Using the measuring cups, **place** 1/3 cup of the pancake batter onto the pan.
 

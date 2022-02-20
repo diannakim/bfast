@@ -35,11 +35,11 @@ Source:
 
 1.  **Heat** a large pan over medium heat on the stove.
 
-    - **NOTE:** You will find pans in the oven.
+    > **NOTE:** You will find pans in the oven.
 
 2.  **Melt** the butter completely onto the pan (Refer to Figure 1).
 
-    - **NOTE:** You will find the butter on the top shelf in the refrigerator.
+    > **NOTE:** You will find the butter on the top shelf in the refrigerator.
 
     ![1,129 Butter Melting In Pan Stock Photos, Pictures &amp; Royalty-Free
     Images - iStock](images/media/image10.jpeg)
@@ -48,13 +48,13 @@ Source:
 
 3.  **Add** the four eggs onto the pan and mix with a spatula until scrambled.
 
-    - **NOTE:** You will find spatulas and spoons in the drawer below the microwave.
+    > **NOTE:** You will find spatulas and spoons in the drawer below the microwave.
 
 4.  **Sprinkle** salt and pepper to your liking.
 
 5.  **Remove** the scrambled eggs from the pan and onto a plate.
 
-    - **NOTE:** You will find plates and bowls in the cabinet above the dishwasher.
+    > **NOTE:** You will find plates and bowls in the cabinet above the dishwasher.
 
 11. **Cook** the four slices of bacon over medium heat until crisp using the same pan.
 
@@ -62,7 +62,7 @@ Source:
 
 13. **Crumble** the slices of bacon either using your fingers or a knife and set it aside (Refer to Figure 2).
 
-    - **NOTE:** You will find knives in the knife block next to the microwave.
+    > **NOTE:** You will find knives in the knife block next to the microwave.
 
     ![How To Make Bacon Crumbles - The Cookie
     Rookie](images/media/image11.jpeg)
@@ -79,7 +79,7 @@ Source:
 
 18. **Roll** each tortilla up into a small burrito (Refer to Figure 3).
 
-    - **NOTE:** The fillings may come out of the burrito, so be careful with rolling!
+    > **NOTE:** The fillings may come out of the burrito, so be careful with rolling!
 
     ![How to Fold a Wrap, Step by Step \|
     Epicurious](images/media/image12.jpeg)

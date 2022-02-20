@@ -36,17 +36,17 @@ Source: <https://minimalistbaker.com/my-go-to-avocado-toast/>
     *Figure 1: Placing the bread into the toaster and pressing the button down to begin toasting.*
 
 2.  **Remove** the two slices of bread from the toaster after they are finished toasting. **Place** the slices of bread on a plate and set it aside.
-    - **NOTE:** You will find plates and bowls in the cabinet above the dishwasher.
+    > **NOTE:** You will find plates and bowls in the cabinet above the dishwasher.
 
 3.  **Cut** the ripe avocado in half.
 
-    - **NOTE:** You will find knives in the knife block next to the microwave and cutting boards, forks, and spoons in the cabinet below the microwave.
+    > **NOTE:** You will find knives in the knife block next to the microwave and cutting boards, forks, and spoons in the cabinet below the microwave.
 
 4.  **Scoop** the avocado from the skin and place it into a small bowl.
 
 5.  **Smash** the avocado using a fork to create an avocado mash (Refer to Figure 2).
 
-    - **NOTE:** The less you smash the avocado, the chunkier your mash will be!
+    > **NOTE:** The less you smash the avocado, the chunkier your mash will be!
 
     ![The Best Avocado Toast - Loving It
     Vegan](images/media/image5.jpeg)
