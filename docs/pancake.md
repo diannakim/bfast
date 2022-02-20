@@ -1,4 +1,4 @@
-# How to Make Vegan Pancakes
+# How to Make Vegan Pancakes 🥞
 ## This guide includes instructions on how to make vegan pancakes!
 
 Source: <https://www.noracooks.com/vegan-pancakes/>

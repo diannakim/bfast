@@ -1,4 +1,4 @@
-# How to Make Bacon, Egg, and Cheese Breakfast Burritos
+# How to Make Bacon, Egg, and Cheese Breakfast Burritos 🌯
 
 ## This guide includes instructions on how to make bacon, egg, and cheese breakfast burritos!
 

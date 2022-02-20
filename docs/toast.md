@@ -1,4 +1,4 @@
-# How to Make Vegan Avocado Toast
+# How to Make Vegan Avocado Toast 🍞
 
 ## This guide includes instructions on how to make a delicious (and vegan!) avocado toast!
 

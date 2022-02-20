@@ -1,4 +1,4 @@
-# How to Make Scrambled Eggs with Bacon
+# How to Make Scrambled Eggs with Bacon 🍳 
 
 ## This guide includes instructions on how to make scrambled eggs with bacon!
 
