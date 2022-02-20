@@ -54,7 +54,7 @@ Source: <https://www.thespruceeats.com/scrambled-eggs-with-bacon-482587>
     ![13 Scrambled Egg Mistakes &amp; How To Fix Them --- Eat This Not
     That](images/media/image8.jpeg)
 
-    *Figure 1: Whisking together the eggs, salt, and pepper in a large bowl.*
+    *Figure 2: Whisking together the eggs, salt, and pepper in a large bowl.*
 
 6.  **Melt** butter onto the same large pan that was used for the bacon over medium heat.
 
